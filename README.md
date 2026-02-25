@@ -1,8 +1,2 @@
-# GitHub-Sachidanand.C.G-Week-2-day-2
+# GitHub-Sachidanand.C.G-Week-4-day-2
 
-![Image url](https://github.com/sachingogaon99-ops/GitHub-Sachidanand.C.G-Week-2-day-2/blob/main/Screenshot%202026-02-25%20155512.png?raw=true)
-![Image url](https://github.com/sachingogaon99-ops/GitHub-Sachidanand.C.G-Week-2-day-2/blob/main/Screenshot%202026-02-25%20161114.png?raw=true)
-![Image url](https://github.com/sachingogaon99-ops/GitHub-Sachidanand.C.G-Week-2-day-2/blob/main/Screenshot%202026-02-25%20161721.png?raw=true)
-![Image url](https://github.com/sachingogaon99-ops/GitHub-Sachidanand.C.G-Week-2-day-2/blob/main/Screenshot%202026-02-25%20161921.png?raw=true)
-![Image url](https://github.com/sachingogaon99-ops/GitHub-Sachidanand.C.G-Week-2-day-2/blob/main/Screenshot%202026-02-25%20171620.png?raw=true)
-![Image url](https://github.com/sachingogaon99-ops/GitHub-Sachidanand.C.G-Week-2-day-2/blob/main/Screenshot%202026-02-25%20171928.png?raw=true)
